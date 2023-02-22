@@ -1,1 +1,1 @@
-# MathorCup2022_B
+# MathorCup2022 Track_B_PreRound
